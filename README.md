@@ -59,7 +59,8 @@ Speaking of 2020…
 - keep joking about the end of the world. Remember when you thought 2000 already happened in 1996? The Mayans may have gotten their calendars wrong too.
 - cherish every hug you give loved ones. Apparently that ain’t gonna happen for about two years and will be frowned upon for a few months. (It’ll make sense later)
 
-Last piece of advice I can give you? ***Don’t forget to tell your friends and family that you love them every chance you get.***
+Last piece of advice I can give you? 
+# ***Don’t forget to tell your friends and family that you love them every chance you get.***
 
 I love you,
 
